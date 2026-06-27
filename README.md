@@ -9,7 +9,7 @@ Roblox oyuncuları için oluşturulmuş topluluk platformu.
 - Topluluk içerikleri
 
 ## 📞 İletişim
-Bize ulaşmak için: ahmetplay@gmail.com
+Bize ulaşmak için: ahmetefeakipek2@gmail.com
 
 ## 🚀 Amacımız
 Roblox oyuncularını bir araya getirmek ve eğlenceli bir topluluk oluşturmak.
